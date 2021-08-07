@@ -1,5 +1,11 @@
 # Channel-Posts-Counter
 Count the posts on your target Telegram channel
+
+Contact with me :
+
+ Telegram : https://t.me/erfan4lx
+  
+ Email : erfan4lx@gmail.com
   
  Show full video on YouTube : In recording...
 
