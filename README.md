@@ -9,7 +9,7 @@ Contact with me :
   
  Show full video on YouTube : https://youtu.be/Rj6bzdM29_E/
 
-Show demo video on Instagram : https://www.instagram.com/p/CST5OIfgf03/
+Show demo video on Instagram : https://www.instagram.com/p/CST7pu1AAqs/
 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
