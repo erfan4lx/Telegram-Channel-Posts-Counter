@@ -7,9 +7,9 @@ Contact with me :
   
  Email : erfan4lx@gmail.com
   
- Show full video on YouTube : In recording...
+ Show full video on YouTube : https://youtu.be/Rj6bzdM29_E/
 
-Show demo video on Instagram : In recording...
+Show demo video on Instagram : https://www.instagram.com/p/CST5OIfgf03/
 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
