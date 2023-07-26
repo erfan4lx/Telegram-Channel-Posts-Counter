@@ -5,7 +5,7 @@ Purchase it on my website : https://erfan4lx.com/product/telegram-channel-posts-
 
 Contact with me :
 
- Telegram : https://t.me/erfan4lx5
+ Telegram : https://t.me/erfan4lx7
   
  Email : erfan4lx@gmail.com
   
@@ -15,7 +15,7 @@ Show demo video on Instagram : https://www.instagram.com/p/CST7pu1AAqs/
 
 🆔My YouTube Channel : https://youtube.com/erfan4lx
 
-🆔My Telegram Channel : https://t.me/erfan4lx_company
+🆔My Telegram Channel : https://t.me/erfan4lx_marketing
 
 🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
