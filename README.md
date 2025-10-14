@@ -11,13 +11,9 @@ Contact with me :
   
  Show full video on YouTube : https://youtu.be/Rj6bzdM29_E/
 
-Show demo video on Instagram : https://www.instagram.com/p/CST7pu1AAqs/
-
 🆔My YouTube Channel : https://youtube.com/erfan4lx
 
 🆔My Telegram Channel : https://t.me/erfan4lx_news
-
-🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
  MY OFFICIAL WEBSITE : https://erfan4lx.com
 
